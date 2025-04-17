@@ -1,1 +1,1 @@
-# GWF
+# GWF AG
